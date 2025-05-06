@@ -73,7 +73,7 @@ For questions or collaboration, please reach out to any of the team members:
 
 - Larry Ng'etich - kipkirui.ngetich@gmail.com
 - Caren Kyalo - caren.kkyalo@gmail.com
-- Derrick Waititu - derricknturibi1317@gmail,com
+- Derrick Waititu - derricknturibi1317@gmail.com
 - Tracy Rotich - Tracyrotich.c@gmail.com
 - Doreen Chepkonga - Doreenchepkonga@student.moringaschool.com
 - Knight Mbithe - knightmbithe17@gmail.com
